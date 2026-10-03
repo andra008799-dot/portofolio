@@ -1,2 +1,0 @@
-# portofolio
-my profesional portofolio 
